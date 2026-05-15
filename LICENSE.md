@@ -1,4 +1,4 @@
-# 
+# smart NFT Floor Sweeper for blur sniper bot | floor-sweeping & liquidity-analysis offers the most advanced blur sniper bot, with floor-sweeping and liquidity-analysis. Ideal for
 
 
 
